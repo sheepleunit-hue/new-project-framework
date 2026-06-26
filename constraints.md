@@ -1,0 +1,1 @@
+Would I fund this?
